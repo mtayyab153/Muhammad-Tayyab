@@ -1,6 +1,5 @@
 # Muhammad-Tayyab
 
-# 👨‍💻 Software Engineer Extraordinaire
 
 # 👨‍💻 Software Engineer Extraordinaire
 
